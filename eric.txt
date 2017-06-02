@@ -1,2 +1,3 @@
 I want to learn git.
 I can make it.
+I must make it.
