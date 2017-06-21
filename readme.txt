@@ -10,3 +10,4 @@ And oh my love,i'm holding on forever.
 Reaching for a love that seems so far~~
 So i say a little prayer,and hope my dreams will take me there.  
 Where the skys are blue to see you once again.
+Over seas from coast to coast,to find a place you love the most.
